@@ -1,0 +1,2 @@
+# STATISTICAL-CONSULTING
+my note and HW
