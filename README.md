@@ -1,2 +1,2 @@
 # STATISTICAL-CONSULTING
-my note and HW
+My note and HW.
